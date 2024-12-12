@@ -1,1 +1,1 @@
-<img src= "https://res.cloudinary.com/diaf4r22q/image/upload/v1733963719/f5dmr7hmushzlqsxfhki.png" />
+<img src= "https://res.cloudinary.com/diaf4r22q/image/upload/v1733963828/i6oc3aqosutr2qngaiua.png" />
